@@ -1,6 +1,6 @@
 # Механизмы легитимации: как хадисная литература стала источником имперского права
 
-![Подпись к картинке](https://github.com/PostProphetic/research/blob/main/Gemini_Generated_Image_v21lxcv21lxcv21l.jpeg)
+![Подпись к картинке](https://github.com/PostProphetic/research/blob/main/images/taf.jpeg)
 
 **Аннотация**
 
